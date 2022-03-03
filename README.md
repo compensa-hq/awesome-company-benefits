@@ -20,7 +20,7 @@ The curated list of awesome employeee benefits and perks offered by companies. T
 
 # Why are employee benefits so important?
 
-Offering benefits to employees is important because it helps them to feel more fulfilled and more satisfied. A solid employee benefits package can help to attract and retain talent. Benefits can help you differentiate your business from competitors.
+Offering benefits to employees is important because it helps them to feel more fulfilled and more satisfied. A solid employee benefits package can help to attract and retain talent.
 
 ## A - C
 
